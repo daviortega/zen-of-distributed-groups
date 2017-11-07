@@ -1,4 +1,4 @@
-# zen-of-decentralized-groups 
+# zen-of-distributed-groups 
 
 ![](https://i.creativecommons.org/p/zero/1.0/88x31.png)
 
