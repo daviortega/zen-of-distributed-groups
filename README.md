@@ -10,5 +10,5 @@ can't complain if you are not there
 fix instead of criticize  
 forgiveness is better than permission  
 because one can is not a reason to do it  
-because should be done is a reason to do it  
+because it should be done is a reason to do it  
 
