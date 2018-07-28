@@ -11,4 +11,4 @@ fix instead of criticize
 forgiveness is better than permission  
 because one can is not a reason to do it  
 because it should be done is a reason to do it  
-
+Coordination without delegation
