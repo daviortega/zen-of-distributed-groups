@@ -12,4 +12,4 @@ Forgiveness is better than permission
 Because one can is not a reason to do it  
 Because it should be done is a reason to do it  
 Coordination without delegation  
-Don't just be the "idea" person
+Don't just be the "idea person"
