@@ -6,9 +6,10 @@ No heroes and no vilains
 Incremental help is better than disruptive behavior  
 Communication is a problem and centralization still looms  
 Efficiency is a challenge but it must be pursuit  
-can't complain if you are not there  
-fix instead of criticize  
-forgiveness is better than permission  
-because one can is not a reason to do it  
-because it should be done is a reason to do it  
+Can't complain if you are not there  
+Fix instead of criticize  
+Forgiveness is better than permission  
+Because one can is not a reason to do it  
+Because it should be done is a reason to do it  
 Coordination without delegation
+Don't just be the "idea" person
